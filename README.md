@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lixiang202402@sina.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/xiangli00](https://www.linkedin.com/in/xiangli00)
+- 📄 Know about my experiences [(https://drive.google.com/drive/folders/1_9zgVswXh3hSPghlofTDjNsYpSM8O-nl?usp=drive_link)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
